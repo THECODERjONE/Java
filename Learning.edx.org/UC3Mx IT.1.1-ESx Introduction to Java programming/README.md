@@ -1,0 +1,1 @@
+As I thought, it was too good to be true. You have to pay to be tested. I drop; I have no money.
